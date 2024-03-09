@@ -1,6 +1,6 @@
 ### 孙天崇
 
-- Email：suntianchong@jd.com
+- Email：suntianchong01@gmail.com
 
 - 学校：沈阳工业大学
 
